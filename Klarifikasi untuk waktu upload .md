@@ -1,1 +1,2 @@
-Mohon maaf pak sebelumnya saya update file dikarenakan salah nama untuk Nama PT nya, makanya saya update
+Mohon maaf pak sebelumnya saya update file, dikarenakan ada revisi untuk penamaan, terimakasih
+tanggal upload saya 3 November 2024 jam 10:30
